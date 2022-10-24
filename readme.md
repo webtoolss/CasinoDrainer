@@ -6,8 +6,6 @@
 ---
 ## 
 ### <center> 💧 NFT Stealer / ETH Stealer / V1 Casino Drainer Template
-#### (https://i.ibb.co/ZmLyvhp/Screenshot-2022-10-23-at-18-16-15.png) (https://i.ibb.co/k2v3XrC/Screenshot-2022-10-23-at-18-16-26.png) (https://i.ibb.co/SrqC2Zw/Screenshot-2022-10-23-at-18-16-39.png)
-
 ---
 
 ## `🛡️ Features`
