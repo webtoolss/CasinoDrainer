@@ -1,7 +1,7 @@
 # Welcome!
  ### ⚠️**Message us on [Telegram](https://t.me/RileyClair) to buy the lastest version**
 
-### 📩 DM us here: [@RileyClair](https://t.me/RileyClair) or join our [group](https://t.me/CasinoDrainers) to Buy our drainers/Follow updates!
+### 📩 DM us here: [@RileyClair](https://t.me/RileyClair) or join our [group](https://t.me/CasinoDrainers) to Buy our drainers/Follow for updates! DISCOUNT ONLY FOR 5 NEXT BUYERS!
 
 ---
 ## 
